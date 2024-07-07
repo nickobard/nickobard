@@ -8,4 +8,4 @@
   - Linked In: [www.t.me/nickbard](https://t.me/nickbard)
   - Telegram: [www.linkedin.com/in/n-barda](www.linkedin.com/in/n-barda)
   - email: n.bardatskii@gmail.com
-- ⚡ Fun fact: I scratch my big nose oftenly
+- ⚡ Fun fact: I have a big nose which I scratch often.
